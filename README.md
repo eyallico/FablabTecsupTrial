@@ -1,2 +1,0 @@
-# FablabTecsup
-Horarios y tutoriales
